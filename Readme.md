@@ -1,1 +1,1 @@
-![Instrukcja 1](/images/zycienia.png)
+![instructions1](./zycienia.png)
