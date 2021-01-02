@@ -1,4 +1,4 @@
-# Sprawozdanie
+# [Sprawozdanie](https://eszkola.pl/jezyk-polski/sprawozdanie-8983.html)
 ## Co to jest sprawozdanie – definicja
 - **Sprawozdanie** to relacja z jakiegoś prawdziwego wydarzenia, np. wycieczki, imprezy, uroczystości.
 - Sprawozdanie to wierna i dokładna relacja o charakterze informacyjnym pisana z punktu widzenia świadka lub uczestnika zdarzeń. Informacje przedstawiane są w porządku chronologicznym lub tematycznym.
