@@ -87,6 +87,9 @@ Dodać można również zdjęcia z wydarzenia, i nadać relacji chwytliwy tytuł
 - Możemy użyć cytatów.
 
 # Życienia
+- [Życzenia ślubne - czego życzyć młodej parze? Gotowe teksty życzeń ślubnych](https://polki.pl/slub-i-wesele/organizacja-i-formalnosci,przykladowe-zyczenia-slubne,10050167,artykul.html)
+- [Jak napisać życzenia](https://www.ortograf.pl/zasady-pisowni/jak-napisac-zyczenia-schemat)
+
 ![instructions1](./zycienia.png)
 ![example1](./przykład1.png)
 ![example2](./przykład2.png)
