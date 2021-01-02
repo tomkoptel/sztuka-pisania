@@ -1,4 +1,4 @@
-(180 słów) Egzamin ustny czy pisemny - proszę napisać tekst argumentacyjny.
+**(180 słów) Egzamin ustny czy pisemny - proszę napisać tekst argumentacyjny.**
 
 Egzamin jest jednym ze skutecznych sposobów, żeby przetestować znajomość wiedzy kandydatów. 
 Egzaminy można organizować w różne sposoby. W danym tekście spróbujemy porównać różnice między pisemnym i ustnym formatami egzaminu.
@@ -16,4 +16,3 @@ Wynik tej analizy demonstruje że egzamin ustny, chociaż jest najszybszy sposó
 Na zakończenie, trzeba rozumieć że nie wszystkie przedmioty można ogarnąć w pisemny lub ustny egzamin. 
 Na przykład, matematyka to praktyczny przedmiot i lepiej użyć formę pisemną.
 W przypadku historii, lub języka obcego ustny egzamin jest najlepsza metoda do przetestowania.
-
