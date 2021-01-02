@@ -84,10 +84,7 @@ Dodać można również zdjęcia z wydarzenia, i nadać relacji chwytliwy tytuł
 
 ## Słownictwo
 - Używamy słownictwa zrozumiałego dla szerszych mas, ale nie posługujemy się wulgaryzmami. 
-- Możemy użyć cytatów. 
-
-
-Sprawdzono przez iKorektor – https://ikorektor.pl
+- Możemy użyć cytatów.
 
 # Życienia
 ![instructions1](./zycienia.png)
