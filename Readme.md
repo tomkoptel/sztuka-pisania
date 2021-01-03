@@ -1,3 +1,38 @@
+# [Ogłoszenie](https://www.mjakmama24.pl/edukacja/pomoc-w-nauce/jak-napisac-ogloszenie-aa-Ugjq-RJ7j-1LzA.html)
+## Zasady
+* Ogłoszenie powinno **mieć wyraźny nagłówek: OGŁOSZENIE** umieszczony na środku.
+* pisząc o organizacji koncertu trzeba
+  * podać datę
+  * godzinę i miejsce wydarzenia
+  * informacje o organizatorze]
+  * ceny biletów
+  * strój, w jakim należy przyjść
+* znalezieniu psa
+  * należy podać datę (wraz z przybliżoną godziną) znalezienia
+  * miejsce
+  * dokładnie opisać zwierzę
+* Jeśli chcemy coś sprzedać:
+  * podać również cenę
+* Jeśli chcemy coś kupić
+  * warto dokładnie opisać swoje oczekiwania względem poszukiwanego przedmiotu
+* zgubienia jakiegoś przedmiotu
+  * szczegółowo opisać zgubę
+  * podać przybliżoną lokalizację miejsca, w którym zaginęła
+* **podać dane kontaktowe**
+  * wystarczy numer telefonu, adres email, ewentualnie imię i nazwisko, a w przypadku firmy jej nazwa. 
+## Przykłady ogłoszeń
+
+1. OGŁOSZENIE
+19 września w godzinach porannych w autobusie linii 525 znaleziono kolorowy plecak na kółkach, w którym były podręczniki dla klasy trzeciej szkoły podstawowej, a także różowy worek z zielonymi tenisówkami. Zguba została przekazana kierowcy i będzie do odbioru w Zajezdni Autobusowej przy ulicy Transportowej 20.
+
+2. OGŁOSZENIE
+Zaginął pies
+Dnia 1 marca 2018 roku około godziny 12 na Polach Mokotowskich w Warszawie urwał się ze smyczy i uciekł pies rasy labrador. Prawdopodobnie pobiegł za ciemnobrązową suczką w stronę ul. Żwirki i Wigury. Pies jest młody, wesoły, ufny i przyjazny w stosunku do ludzi i do innych psów. W chwili zaginięcia miał na sobie obrożę przeciwkleszczową i czerwone szelki z adresatką. Znak charakterystyczny: na grzbiecie ma wygoloną sierść i bliznę po operacji. Znalazcę proszę o kontakt pod numerem telefonu 555 555 555. Czeka nagroda!
+
+3. OGŁOSZENIE
+Znaleziono klucze
+11 kwietnia w sklepie spożywczym przy ulicy Gastronomicznej 5 znaleziono pęk kluczy przypiętych do czerwonego breloczka. W celu umówienia odbioru proszę o kontakt pod numerem telefonu 123 456 789
+
 # [Sprawozdanie](https://eszkola.pl/jezyk-polski/sprawozdanie-8983.html)
 ## Co to jest sprawozdanie – definicja
 - **Sprawozdanie** to relacja z jakiegoś prawdziwego wydarzenia, np. wycieczki, imprezy, uroczystości.
