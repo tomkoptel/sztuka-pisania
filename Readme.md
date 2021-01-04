@@ -1,3 +1,13 @@
+# [Jak napisać podanie?](https://epodreczniki.pl/a/jak-napisac-podanie/DAX4dFDav)
+## Zasady
+* dane nadawcy
+* adresat
+* tytuł pisma
+* formuła grzecznościowa końcowa
+* odręczny podpis
+* miejscowość i data
+![podanie](./podanie.png)
+
 # [Ogłoszenie](https://www.mjakmama24.pl/edukacja/pomoc-w-nauce/jak-napisac-ogloszenie-aa-Ugjq-RJ7j-1LzA.html)
 ## Zasady
 * Ogłoszenie powinno **mieć wyraźny nagłówek: OGŁOSZENIE** umieszczony na środku.
