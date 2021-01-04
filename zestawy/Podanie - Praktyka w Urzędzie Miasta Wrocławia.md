@@ -19,12 +19,12 @@ Nigdy nie wiedziałem ile muszę czekać, żeby natychmiast rozwiązać mój pro
 Z rozwojem internetu i urządzeń elektronicznych, w okresie ostatnich dziesięciu lat, sytuacja się polepszyła.
 Mam dużo chęci i chciałbym dołączyć się do zespołu.
 Mogę zaproponować listę różnorodnych modyfikacji.
-Dotyczę ta lista tematu IOT(Internet Urządzeń), bezpieczeństwa, mobilnych i internetowych platform.
+Dotyczę lista tematu IOT(Internet Urządzeń), bezpieczeństwa, mobilnych i internetowych platform.
 
 Zauważyłem, że w sytuacjach dużych kolejek nie jest możliwe dostać ocenę czasu.
 Proponuję rozwiązać wspomniany problem z użyciem systemu inteligentnego.
 Na przykład, jest możliwe zachować informację o początku i końcu interakcji wnioskodawcy z urzędnikiem.
-Ta statystyka będę użyta jako dane wejściowe dla nauczania systemu maszynowego, które używa algorytmów regresji i może wyliczyć przewidywany czas wykonania operacji.
+Statystyka będę użyta jako dane wejściowe dla nauczania systemu maszynowego, które używa algorytmów regresji i może wyliczyć przewidywany czas wykonania operacji.
 W połączeniu z mobilny dodatkiem będę to rozwiązanie, które w zasięgu ręki monitorowałobym i w czasie rzeczywistym nadawało aktualizacje pozostałego czasu oczekiwania.
 
 Mam nadzieję, że oferta zaciekawiła Państwa!
