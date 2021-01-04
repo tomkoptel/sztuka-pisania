@@ -29,5 +29,5 @@ W połączeniu z mobilny dodatkiem będę to rozwiązanie, które w zasięgu rę
 
 Mam nadzieję, że oferta zaciekawiła Państwa!
 
-Z poważaniem
-Artem Koptel
+<p align="right">Z poważaniem</p>
+<p align="right">Artem Koptel</p>
