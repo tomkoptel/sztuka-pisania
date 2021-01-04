@@ -1,13 +1,15 @@
-Wrocław, 30.01.2021r.
+<p align="right">Wrocław, 30.01.2021r.</p>
 
 Artem Koptel
+
 ul. Rakowicka 22H
+
 31-510
 
-Kierownik
-Urząd Miasta Wrocław
+<p align="right">Kierownik</p>
+<p align="right">Urząd Miasta Wrocław</p>
 
-PODANIE
+<p align="center">PODANIE</p>
 
 Zwracam się z prośbą o odbyciu praktyki w Urzędzie Miasta Wrocławia. 
 Z zawodu jestem programistą. Mam pomysł i mogę zainwestować w rozwój działania urzędu. 
