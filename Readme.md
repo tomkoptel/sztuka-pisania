@@ -8,7 +8,6 @@
 * miejscowość i data
 
 ## Pamiętaj!
-
 * Podanie to rodzaj pisma z oficjalną prośbą skierowaną do urzędu, instytucji, firmy. 
 * Podanie powinno być napisane zwięźle, rzeczowo, prostymi zdaniami. 
 * Należy bardzo dobrze umotywować swoją prośbę, gdyż od tego zależy, jak zostanie ona rozpatrzona. 
