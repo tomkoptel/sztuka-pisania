@@ -6,6 +6,15 @@
 * formuła grzecznościowa końcowa
 * odręczny podpis
 * miejscowość i data
+
+## Pamiętaj!
+
+Podanie to rodzaj pisma z oficjalną prośbą skierowaną do urzędu, instytucji, firmy. 
+
+Podanie powinno być napisane zwięźle, rzeczowo, prostymi zdaniami. Należy bardzo dobrze umotywować swoją prośbę, gdyż od tego zależy, jak zostanie ona rozpatrzona. 
+
+Pisząc podanie, posługuj się językiem starannym, oficjalnym, używaj zwrotów grzecznościowych. 
+
 ![podanie](./podanie.png)
 
 # [Ogłoszenie](https://www.mjakmama24.pl/edukacja/pomoc-w-nauce/jak-napisac-ogloszenie-aa-Ugjq-RJ7j-1LzA.html)
