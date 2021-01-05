@@ -8,7 +8,7 @@ Pierwszy dzień to naprawdę był dzień kiedy ten gość dołączył się do na
 Jego imię jest Borys.
 Borys przeprowadził się razem z rodziną do miasteczka na Ukrainie.
 Pochodzi z Izraela. Jego ojciec jest Żydem, a matka Ukrainka.
-Natychmiast zwróciło moją uwagę to, że był Borys niskiego wzrostu, krępowaty, mięsisty, miał duże barki i plecy.
+Natychmiast zwróciło moją uwagę to, że był Borys niskiego wzrostu, krępy, mięsisty, miał duże barki i plecy.
 Można go porównać z magicznymi obywatelami opowiadań Tolkiena, które mieszkali w jaskiniach gór i zdobywali szlachetne kamienia, mówię o krasnoludach.
 Później dowiedział się, że Borys był zwycięzca pośród młodszych grup bokserskich.
 
