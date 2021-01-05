@@ -2,5 +2,5 @@
 
 <p align="center">Zaproszenie</p>
 
-Zapraszam Państwo na imprezę pożegnalną, która odbędzie się o siedemnastej godzinie w sale głownej szkoły o nazwie Tadeusza Kościuszki piątego stycznia na ulice Kasztanowej sześć. 
+Zapraszam Państwo na imprezę pożegnalną, która odbędzie się o siedemnastej godzinie w sale głównej szkoły o nazwie Tadeusza Kościuszki piątego stycznia na ulice Kasztanowej sześć.
 Bardzo mi zależy na obecność całej grupy! Artem Koptel.
