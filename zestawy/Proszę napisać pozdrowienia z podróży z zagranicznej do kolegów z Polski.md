@@ -2,7 +2,7 @@
 
 Drodzy koledzy!
 
-Piszę ze słonecznej Chorwacji. Jestem na wybrzeżu morza Adriatyckiego. 
-Dlatego że jest lipiec woda morska jest ciepła. 
-Każdy dzień opalam się na plażu. Naprawdę, świetnie odpoczywam. 
+Piszę ze słonecznej Chorwacji. Jestem na wybrzeżu morza Adriatyckiego.
+W lipcu morska woda jest ciepła, więc dużo pływam.
+Każdy dzień opalam się na plaży. Naprawdę, świetnie odpoczywam.
 Do zobaczenia wkrótce. Pozdrawiam, Artem!
