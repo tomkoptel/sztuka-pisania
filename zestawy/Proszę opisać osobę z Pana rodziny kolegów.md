@@ -1,4 +1,5 @@
 **(170 stów) Proszę opisać osobę z Pana/Pani rodziny kolegów.**
+
 Jest, naprawdę, wspaniałe kiedy masz dużą rodzinę. 
 Prawie nie jest to możliwe znudzić się, szczególnie kiedy masz trzech braci. 
 W niniejszym opisu chcę opisać mego brata Maksyma.
