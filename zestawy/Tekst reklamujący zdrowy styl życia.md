@@ -13,10 +13,10 @@ Nie na darmo mówią: “Co za dużo to niezdrowo”!
 Druga podstawowa rzecz zdrowego stylu życia, to odżywienie.
 Za dużo tłuszczu powoduje problemy serca i naczynia krwionośnego.
 Dodatkowo musimy uważać na węglowodany, które właśnie są przyczyną otyłości, jeśli nie uważamy na ilości.
-Można to określić tak, że musimy jeść dużo warzyw i kontrolować produkty używające konserwanty.
+Można to określić tak, że musimy jeść dużo warzyw i kontrolować produkty używające konserwantów.
 
 Zdrowy styl życia jest warunkiem szczęścia.
-Nie tylko będziesz czuł lepiej, ale masz więcej szansów na dłuższe życie, lepszej formę ciała i dobrej jakości życia.
+Nie tylko będziesz czuł lepiej, ale masz więcej szansom na dłuższe życie, lepszej formę ciała i dobrej jakości życia.
 Jeszcze masz wątpienia?
 Nie zwlekaj!
 Zaczynaj od teraz!
