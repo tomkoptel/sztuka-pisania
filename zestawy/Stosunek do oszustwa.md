@@ -7,7 +7,7 @@ Wokół niej leżą monety. W dużych miastach jest wielu „zawodowych żebrak�
 Często są to dzieci zmuszone do symulowania niepełnosprawności, a procederem tym zajmują się zorganizowane gangi.
 
 Życie to zawsze wybór.
-Musimy zdecydować jak chcemy żyć.
+Powinniśmy zdecydować, jak mamy żyć.
 Czy to będzie uczciwe życie zgodnie z zasadami społeczeństwa, lub coś, co jest zauważane niemoralnym, spełnionym oszustwem i stałym kłamstwem do siebie i innych?
 W powyższym opisu jest oczywiste, że mamy przykład okłamywania innych.
 W niniejszym tekstu chcę wyrazić mój stosunek do opisanego.
@@ -16,7 +16,7 @@ Społeczeństwo jest skomplikowany potwór.
 Przedstawia on mieszankę ludzie na różnych poziomach ekonomicznych zdolności.
 Ktoś jest bogaty, a ktoś inny biedny, inne należą do średniej klasy.
 Rozróżnienie na inne poziomy powoduję sytuacje, kiedy wynika grupa osób, które szukają łatwy sposób do zarobków pieniędzy.
-Są tacy którzy chcą oszukać innych, okraść i zdobyć to co było zdobyte przez uczciwą pracę.
+Są tacy, którzy chcą oszukać innych, okraść i zdobyć to co było zdobyte przez uczciwą pracę.
 
 Czy jest możliwe, żeby społeczeństwo było bez gangów i żebraków? Moim zdaniem, utopia do realizacji nie jest możliwa.
 Jestem pewny, że zawsze będą grupy bezczynnych, leniwych ludzie, którzy raczej będą pasożytom na społeczeństwie, niż pełnoprawnym członkiem.
