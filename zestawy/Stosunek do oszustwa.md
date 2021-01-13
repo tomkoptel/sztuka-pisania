@@ -8,21 +8,21 @@ Często są to dzieci zmuszone do symulowania niepełnosprawności, a procederem
 
 Życie to zawsze wybór.
 Musimy zdecydować jak chcemy żyć.
-Czy to będzie uczciwe życie zgodnie z zasadami socium, lub coś, co jest zauważane niemoralnym, spełnionym oszustwem i stałym kłamstwem do siebie i innych?
+Czy to będzie uczciwe życie zgodnie z zasadami społeczeństwa, lub coś, co jest zauważane niemoralnym, spełnionym oszustwem i stałym kłamstwem do siebie i innych?
 W powyższym opisu jest oczywiste, że mamy przykład okłamywania innych.
 W niniejszym tekstu chcę wyrazić mój stosunek do opisanego.
 
-Socium jest skomplikowany potwór.
+Społeczeństwo jest skomplikowany potwór.
 Przedstawia on mieszankę ludzie na różnych poziomach ekonomicznych zdolności.
 Ktoś jest bogaty, a ktoś inny biedny, inne należą do średniej klasy.
-Rozróżnienie na inne poziomy powoduje sytuacje, kiedy wynika grupa osób, które szukają łatwy sposób do zarobków pieniędzy.
+Rozróżnienie na inne poziomy powoduję sytuacje, kiedy wynika grupa osób, które szukają łatwy sposób do zarobków pieniędzy.
 Są tacy którzy chcą oszukać innych, okraść i zdobyć to co było zdobyte przez uczciwą pracę.
 
-Czy jest możliwe, żeby był socium bez gangów i żebraków? Moim zdaniem, utopia do realizacji nie jest możliwa.
+Czy jest możliwe, żeby społeczeństwo było bez gangów i żebraków? Moim zdaniem, utopia do realizacji nie jest możliwa.
 Jestem pewny, że zawsze będą grupy bezczynnych, leniwych ludzie, którzy raczej będą pasożytom na społeczeństwie, niż pełnoprawnym członkiem.
 
 W obecnym przykładzie my widzimy gang żebraków.
-Ten sposób oszustwa jest bardzo skutecznym dlatego, że manipuluje emocjami żalu i współczucia.
+Ten sposób oszustwa jest bardzo skutecznym dlatego, że manipuluję emocjami żalu i współczucia.
 
 W zakończeniu, uważam że, musimy być ostrożnymi.
-Lepiej zwracać się do grup charytatywnych, które mogą udowodniczyć wykorzystanie kosztów, niż do losowych żebraków na ulicach.
+Lepiej zwracać się do grup charytatywnych, które mogą udowodnić wykorzystanie kosztów, niż do losowych żebraków na ulicach.
