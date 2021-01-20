@@ -1,3 +1,5 @@
+**(170 słow) Odpoczywa Pani / Pan na wakacjach w swoim rodzinnym kraju. Proszę napisać list do przyjaciółki / przyjaciela z Polski, w którym opowie Pani / Pan o swoim pobycie.**
+
 Warszawa, 30.01.2021 r.
 
 Kochana Małgorzata!

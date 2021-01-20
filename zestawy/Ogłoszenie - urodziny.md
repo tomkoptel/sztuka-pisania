@@ -1,4 +1,4 @@
-**Organizuje Pani / Pan imprezę urodzinową w swoim mieszkaniu dla wielu gości. Hałas może przeszkadzać Pani / Pana sąsiadom, dlatego chce Pani / Pan poinformować ich o tym wydarzeniu. Proszę napisać ogłoszenie, które powiesi Pani / Pan w windzie.**
+**(30 słow) Organizuje Pani / Pan imprezę urodzinową w swoim mieszkaniu dla wielu gości. Hałas może przeszkadzać Pani / Pana sąsiadom, dlatego chce Pani / Pan poinformować ich o tym wydarzeniu. Proszę napisać ogłoszenie, które powiesi Pani / Pan w windzie.**
 
 Warszawa, 30.01.2021 r.
 
