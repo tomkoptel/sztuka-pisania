@@ -17,13 +17,13 @@ Już mam zarezerwowaną łódź i będę miał wycieczkę poza miastem.
 Chcę nałowić homarów i dużo ryby.
 Razem z Anną spędziliśmy kilka dni na wycieczce rowerową.
 Odwiedziliśmy kilka znakomitych miejsc.
-Na przykład byliśmy w zatoce gdzie wówczas Wojny Światowej niemiecki żołnierzy mieli stanowisko dla łodzi podwodnej.
+Na przykład byliśmy w zatoce gdzie wówczas Wojny Światowej niemiecki żołnierzy, mieli stanowisko dla łodzi podwodnej.
 
 Pogoda jest bardzo ładna.
-Wszystkie dni co już udało się nam spędzić były słoneczne.
-Jedynie na co trzeba uważać na temperaturę.
+Wszystkie dni, co już udało się nam spędzić były, słoneczne.
+Jedynie, na co trzeba uważać na temperaturę.
 Wilgotność bardzo niska i jest gorąco.
-Jeśli nie będę ostrożny to mogę dostać udar słoneczny.
+Jeśli nie będę ostrożny, to mogę dostać udar słoneczny.
 Zawsze mam ze sobą mleczko kosmetyczne przeciwsłoneczne.
 
 Po powrocie przywiozę ci upominek.
