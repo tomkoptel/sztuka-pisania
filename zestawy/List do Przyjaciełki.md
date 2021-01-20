@@ -4,7 +4,7 @@ Warszawa, 30.01.2021 r.
 
 Kochana Małgorzata!
 
-Piszę Ci ze słonecznej Chorwatowi.
+Piszę Ci ze słonecznej Chorwacji.
 Znalazłem czas, żeby wrócić się w rodzinny kraj.
 Dzisiaj jestem w Szybeniku.
 Pewnie, Cię o tym powiedział w przyszłości, ale spędziłem w tym mieście dzieciństwo.
