@@ -13,7 +13,7 @@ Udało mnie domówić się ze szefem, że urlop będzie trwał trzy tygodni.
 Jestem bardzo szczęśliwy, że mam extra tydzień.
 Mam plany na ten okres.
 Oczywiście, że będę pływał w morze.
-Już mam zarezerwowaną łódź i będę miał wycieczcie poza miastem.
+Już mam zarezerwowaną łódź i będę miał wycieczkę poza miastem.
 Chcę nałowić homarów i dużo ryby.
 Razem z Anną spędziliśmy kilka dni na wycieczcie rowerową.
 Odwiedziliśmy kilka znakomitych miejsc.
