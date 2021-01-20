@@ -4,31 +4,31 @@ Warszawa, 30.01.2021 r.
 
 Kochana Małgorzata!
 
-Piszę Ci ze słonecznej Chorwatiji.
-Znajłazłem czas, żeby wrócić się w rodzinny kraj.
-Dziśiaj jestem w Szybeniku.
-Pewnie, Cie o tym powiedział w przyszłośći ale spędziłem w tym miaście dzieciństwo.
+Piszę ci ze słonecznej Chorwacji.
+Znalazłem czas, żeby wrócić się w rodzinny kraj.
+Dzisiaj jestem w Szybeniku.
+Pewnie, cię o tym powiedział w przyszłości, ale spędziłem w tym mieście dzieciństwo.
 
-Udało mnie domówić się z szefem, że urłop będzie trwał trzy tygodni.
-Jestem bardzo szcześliwy, że mam extra tydzień.
+Udało mnie domówić się ze szefem, że urlop będzie trwał trzy tygodni.
+Jestem bardzo szczęśliwy, że mam extra tydzień.
 Mam plany na ten okres.
-Oczewiście, że będę pływał w morze.
-Już mam zarezerwowaną łódź i będę miął wycieczkie poza miastem.
-Chcę nałowić lobsterów i dużo ryby.
-Razem z Anną spędziliśmy kilka dni na wycieczkie rowerową.
-Odwiedziliśmy kilka znakomitych miejść.
-Naprzykład byliśmy w zatoce gdzie wówczas Wojny Światowej niemiecki żolnierzy mieli stanowisko do łodzi podwodnej.
+Oczywiście, że będę pływał w morze.
+Już mam zarezerwowaną łódź i będę miał wycieczkę poza miastem.
+Chcę nałowić homarów i dużo ryby.
+Razem z Anną spędziliśmy kilka dni na wycieczce rowerową.
+Odwiedziliśmy kilka znakomitych miejsc.
+Na przykład byliśmy w zatoce gdzie wówczas Wojny Światowej niemiecki żołnierzy, mieli stanowisko dla łodzi podwodnej.
 
 Pogoda jest bardzo ładna.
-Wszystkie dni co już udało się nam spędzić były słoneczne.
-Jedynie na co trzeba uważać jest temperatura.
+Wszystkie dni, co już udało się nam spędzić były, słoneczne.
+Jedynie, na co trzeba uważać na temperaturę.
 Wilgotność bardzo niska i jest gorąco.
-Jeśli nie będę ostrożny to mogę dostać udar słoneczny.
-Zawszę mam z sobą mleczko kosmetyczne przeciwsłoneczne.
+Jeśli nie będę ostrożny, to mogę dostać udar słoneczny.
+Zawsze mam ze sobą mleczko kosmetyczne przeciwsłoneczne.
 
-Po powrocie przywiezę Ci upominek.
+Po powrocie przywiozę ci upominek.
 Proszę, napisać do mnie, co chciałabyś.
-Może jakoś muszle lub coś do picza i jedzenia?
+Może jakoś muszle lub coś do picia i jedzenia?
 
 Serdecznie pozdrawiam
-Artem.
+Artem
