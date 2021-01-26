@@ -6,14 +6,14 @@ W tym tekście opiszę zasady do znalezienia pracy Waszych marzeń.
 
 Pierwsza zasada.
 Prawdziwa praca wymaga wysiłku.
-Moim zdaniem, ona potrzebuję koncentracji, starania i inwestowania czasu.
+Moim zdaniem, ona potrzebuje koncentracji, starania i inwestowania czasu.
 Jeśli idzie to nam zbyt łatwo, więc nie jest to prawdziwa praca.
 Wszystko poznajemy w porównaniu, więc tylko po ciężkiej pracy doceniamy rozrywkę.
 
 Druga zasada.
 Praca musi nas bawić.
 W moim rozumieniu to praca, która pozwała na wyrażanie siebie.
-Najczęściej, tego można znaleźć w zawodach artystycznych (n.d. Rysowanie, pisanie).
+Najczęściej, tego można znaleźć w zawodach artystycznych (np. rysowanie, pisanie).
 
 Ostatnia zasada.
 Praca musi zawierać dobrą pensję.
