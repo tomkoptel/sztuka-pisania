@@ -4,21 +4,21 @@ Wszyscy, czas od czasu, mają wydarzenia nieprzyjemne.
 Może to być zapomnienie klucza, lub pozdrowienia kogoś z uroczystością.
 W moim przypadku to było spóźnienie na lotnisko.
 
-Wieczorem za dzięń do otprawy ustaliłem godzinek, żeby obudził mnie o 6:00.
-Niestety, użyłem na to komórkę.
-Mam zegar i normalnie używam go.
-W nocy w moim budynku nie było prądu.
+Wieczorem za dzięń do otprawy ustaliłem zegarek, żeby obudził mnie o 6:00.
+Niestety, użyłem na to komórkę mobilną.
+Mam mobilną aplikacje zegar i normalnie używam je.
+W nocy w mieszkaniu nie było prądu.
 Komórka rozładowałaś, więc obudziłem się o godzinie później.
 
-Dlatego, żeby móg zlapać samolot musiał ominąć jedzenie i prysznic.
+Dlatego, żeby móg złapać samolot musiał ominąć jedzenie i prysznic.
 Zadzwoniłem po taksówke.
-W ciągu jazdy byliśmy w korce.
+W ciągu jazdy trafiliśmy w kork.
 Z tego powodu chciałem krzyczeć ze złości. 
 
 Na lotnisku znow wpadłem w kolejkę.
-Był bardzo z tego powodu wściekły.
+Byłem bardzo wściekły.
 Dodatkowo, mój bagaż miał nadmiarną wagę.
-Zdecydował wyrzucić kilka rzeczy.
+Zdecydowałem wyrzucić kilka rzeczy.
 To rozwiązało problem, ale nadal był zirytowany.
 
 Podczas skanowania na metał musiał zjąć pasek i nagle mnie upadli spodnie.
