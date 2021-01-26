@@ -1,14 +1,14 @@
 **(175 słów) Proszę napisać sprawozdanie z uroczystości rodzinnej (np. z wesela siostry lub brata, z urodzin babci), w której ostatnio Pani uczestniczyła / Pan uczestniczył.**
 
-Piątego paźdiernika 2020 roku miałem szczęście uczesticzyć w organizacji śluba mojego brata.
-Jestem w bardzo bliskiej relacji z moim bratem.
+Piątego paźdiernika 2020 roku miałem szczęście uczestniczyć w organizacji śluba mojego brata.
+Jestem w bliskiej relacji z moim bratem.
 Bardzo zależało mu, żeby uczestniczyłem w tym wydarzeniu.
 
 Początek dnia był o 6:00 godznie rana.
 Mieliśmy dużo rzeczy do załatwienia.
-Wynajęliśmyś specjalne mieszkanie.
+Wynajęliśmy specjalne mieszkanie.
 Był to dom na plażu.
-Mój brat i jego żona spotkali na wybrzeżu, dlatego plaż miał bardzo ważne znaczenie.
+Mój brat i jego żona spotkali na wybrzeżu, dlatego plaż miał ważne znaczenie.
 
 Po porannym śniadaniu zadzwoniłem do kwiaciarni.
 O 8:00 godzinie musiałem spotkać się z dostawcą.
