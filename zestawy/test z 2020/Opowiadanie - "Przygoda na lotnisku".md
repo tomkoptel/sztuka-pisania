@@ -23,7 +23,7 @@ To rozwiązało problem, ale nadal był zirytowany.
 
 Podczas skanowania na metal musiałem zdjąć pasek i nagle mnie upadli spodnie.
 Czułem się zakłopotany, głodny i nieszczęśliwy.
-W końcu udało mi się wsiać w samolot.
+W końcu udało mi się wsiąść w samolot.
 Dobrze, że to był koniec moich kłopot na ten dzień.
 
 W zakończeniu chciałbym podkreślić, że lepiej sprawdzić wszystko kilka razy.
