@@ -17,7 +17,7 @@ Najczęściej, tego można znaleźć w zawodach artystycznych (n.d. Rysowanie, p
 
 Ostatnia zasada.
 Praca musi zawierać dobrą pensję.
-Ciężka praca, nawet jeśli jest ciekawa, ale nie przynosi dochód będę nas irytowała.
+Ciężka praca, nawet jeśli jest ciekawa, ale nie przynosi dochód, będę nas irytowała.
 
 Może to brzmi fantastycznie, ale „tak!” taka praca istnieje.
 Właśnie jestem tym szczęśliwym człowiekiem, który je znalazłem.
