@@ -22,8 +22,7 @@ Ciężka praca, nawet jeśli jest ciekawa, ale nie przynosi dochód będę nas i
 Może to brzmi fantastycznie, ale "tak!" taka praca istnieje.
 Właśnie jestem tym szczęśliwym człowiekiem który je znalazłem.
 Jest to praca programista.
-
-Praca programista nigdy nie nudzi.
+Ona nigdy nie nudzi.
 Zawszę są wyzwania i uczysz nowych rzeczy.
 Najlepsze jest to, że nadaje swobodę wyboru.
 
