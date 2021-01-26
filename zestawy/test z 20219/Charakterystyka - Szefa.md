@@ -10,7 +10,7 @@ Zawsze był w pracę ktoś kogo zazwyczaj nazywam szefem.
 Pośród wszystkich doświadczeń, jak dotąd miałem tylko jednego rewelacyjnego szefa.
 Nazywa się Viktor i jest to menedżer w kompanii SAP.
 
-Viktor był najlepszym dlatego, że zawsze uczciwy traktował swoich pracowników.
+Viktor był najlepszym dlatego, że zawsze w uczciwy sposób traktował swoich pracowników.
 Kiedy było ciężko, wtedy wspierał i zachęcał do rozmowy.
 Był zainteresowany nie tylko sukcesami w pracę, ale i życiem osobistym.
 W momentach kryzysu był blisko i przyjmował trudne decyzji wspólnie z drużyną.
