@@ -1,21 +1,20 @@
 **(170 słów) “Kariera czy rodzina” - proszę napisać tekst argumentacyjny.**
 
-Życie jest sekwencja wydarzeń.
-To w jakim kierunku będę się rozwijać życie zależy od naszych decyzji.
-Jedna z takich sytuacji to wybór między rodziną czy karierą.
+Życie jest sekwencją wydarzeń.
+To, w jakim kierunku będzie się rozwijać nasze życie, zależy od naszych decyzji.
+Jedna z takich sytuacji to wybór między rodziną a karierą.
 
-Zastanowimy się, że kariera ma wyższy priorytet niż rodzina.
-W tym przypadku nasz czas będę poświęcony wydarzeniem związanych z pracą.
-Sukces w pracę powoduje, że pensja będzie większa.
-Większa pensja pozwala polepszyć warunki życia.
-Na przykład, wynajem lub możliwość kupowania lepszego mieszkania, lub samochodu.
-Niestety, z większym zarobkiem musimy spełniać więcej obowiązków w pracę.
-Tak czy inaczej, im więcej poświęcamy czasu w pracę im więcej obowiązków, im więcej obowiązków im mniej czasu na coś inne niż praca.
-Z tego można zrobić wynik, że kariera, chociaż przynosi więcej zarobków, nie gwarantuje, że będziemy szczęśliwy.
+Załóżmy, że kariera ma priorytet nad rodziną.
+W tym przypadku nasz czas będzie poświęcony wydarzeniom związanym z pracą.
+Sukces w pracy powoduje, że pensja będzie większa.
+Wyższy zarobki pozwolą polepszyć warunki życia, na przykład, wynająć lub kupić lepsze mieszkanie lub samochód.
+Niestety, przy większych zarobkach rosną też nasze obowiązki w pracy.
+Tak czy inaczej, im więcej poświęcamy się dla pracy tym mniej czasu mamy dla siebie.
+Z tego można wyciągnąć wniosek, że kariera, chociaż przynosi więcej pieniędzy, nie gwarantuje, że będziemy szczęśliwsi.
 
-W przypadku kiedy rodzina ma największy priorytet, nasze życie będzie spełnione interakcjami z rodziną.
-Rodzina przynosi radość, ale dlatego, żeby kochanie byli zdrowi i dobrze dokarmiony, potrzebujemy poświęcać czas karierze.
+W przypadku kiedy rodzina ma priorytet, będziemy czuli się spełnieni w relacjach z bliskimi.
+Rodzina przynosi radość, ale żeby ci, których kochamy, byli zdrowi i najedzeni, musimy poświęcić czas karierze.
 
-W podsumowaniu można powiedzieć, że obie ścieżki nie mogą być traktowani w osobny sposób.
-Rodzina potrzebna dla szczęścia, ale bez kariery nie możliwe, żeby rodzina była szczęśliwa.
-Dwie opcje są związane, dlatego musimy szukać równowagę między nimi.
+Podsumowując, obie ścieżki nie mogą być traktowane osobno.
+Rodzina potrzebna jest do szczęścia, ale bez rozwoju zawodowego trudno jest utrzymać rodzinę.
+Obie wartości są związane ze sobą, dlatego powinniśmy szukać równowagi między nimi.
