@@ -1,14 +1,17 @@
-Ciężko to opisać, ale ostatnia podróż w czasach urlopu było jedno z najlepszych doświadczeń.
-Planowałem tę podróż przez cały rok. Zamierzałem wyjechać do Chorwacji na wycieczkę rowerową.
-Ćwiczę triathlon i miałem ustalone trasę do opanowania.
+140 słów. Proszę napisać sprawozdanie (relację) z wycieczki lub podróży.
+
+Trudno jest to opisać, ale ostatnia podróż podczas urlopu była jedną z najlepszych.
+Planowałem tę podróż w ciągu roku. 
+Zamierzałem wyjechać do Chorwacji na wycieczkę rowerową.
+Ćwiczę triathlon i miałem ustaloną trasę do opanowania. 
 To była niesamowita podróż.
 
-Główny sposób podróżowania po kraju, oczywiście, był rower.
+Oczywiście głównym sprzętem podróżowania po kraju był rower.
 Największe wyzwanie w takich wycieczkach to walka z przyrodą.
-Miałem podróżować rano i pod wieczór, żeby za dużo nie opalać się na słońce, bowiem w Chorwacji jest gorąco latem.
-Czasem robiłem zatrzymania, żeby wspinać się po skałach i robić zdjęcia ze szczytów górskich.
-Także nie mogłem ominąć morza, które jest niesamowite i cudowne.
+Miałem podróżować rano i popołudniem, żeby za długo nie przebywać w słońcu, bowiem w Chorwacji latem gorąco jest.
+Czasem robiłem przerwy żeby wspinać się po skałach i robić zdjęcia ze szczytów górskich.
+Także nie mogłem ominąć morza, które jest przezroczyste, błękitne, w ogóle niesamowite i cudowne.
 
-Ten czas spędzony w podróżowanie miał bardzo pozytywny wynik na stan mego psychicznego zdrowia.
-Wróciłem się wypoczętym i gotowym do nowego roku studiów.
-Jako bonus stworzyłem naprawdę wielką bibliotekę zdjęć, które mogę obejrzeć w czasach studiów, żeby mieć dodatkową motywację do przetrwania kolejnego okresu nauki.
+Ten czas spędzony w podróży miał bardzo pozytywny wynik na stan mojego zdrowia psychicznego.
+Wróciłem wypoczęty i gotowy do nowego roku studiów.
+Jako bonus stworzyłem naprawdę wielką kolekcję zdjęć, które mogę oglądać w trakcie zajęć, żeby mieć dodatkową motywację do przetrwania kolejnego wyjazdu.
