@@ -1,21 +1,22 @@
 **(160 słów) „Tę książku ostatnio przeczytałem”. Proszę zaprezentować książkę i wyrazić własną opinię na jego temat.**
 
-Niedawno przeczytałem bardzo ciekawą książkę.
-Napisał je Andy Wier i nazywa się Marsjanin.
+Niedawno czytałem bardzo ciekawą książkę.
+Napisał ją Andy Weir, nazywa się Marsjanin.
 Należy do gatunku naukowej fantastyki.
-Ona zawiera mniej więcej 380 stron.
-Przez kilka miesięcy była sprzedawana jako bestseller.
+Nie jest duża.
+Cała książka zawiera mniej więcej 380 stron.
 
-Bohaterem książki jest amerykański astronaut Mark Watnie.
-Wspólnie z załogą podróżuję do Marsa.
-Historia rozpoczyna się z opisu burzy piaskowej.
-Przez tą burze wszyscy muszą wcześniej opuścić Marsa.
-Inaczej wiatr razem z piachem zepsułby kosmiczny statek.
-Niestety, naszego bohatera uderzyła antena komunikatora, która była zerwana z dachu ośrodka.
-Załoga straciła związek z Markiem, więc zdecydowali opuścić Marsa bez niego.
-Z tego momentu zaczyna się wałka naszego bohatera o życie.
-Książka opisuję wszystkie czynności i krok po kroku wydarzenia, które są niezbędne do wykonania.
-Mark muszę przetrwać prawie dwa lata na powierzchni Marsa, czekając na ratunek z Ziemi.
+Głównym bohaterem książki jest Mark Watnie, amerykański astronauta.
+Razem z załogą podróżuje na Mars.
+Historia zaczyna się od opisu burzy piaskowej.
+Przez tę burzę wszyscy muszą opuścić Mars wcześniej.
+W przeciwnym wypadku wiatr razem z piachem mógłby uszkodzić statek kosmiczny.
+Niestety, naszego bohatera uderzyła antena komunikatora, którą z dachu ośrodka zerwał wiatr.
+Załoga straciła związek z Markiem, więc zdecydowali opuścić Mars bez niego.
+Od tamtego momentu zaczyna się walka naszego bohatera o życie.
+Książka w szczegółach opisuje przygody i perypetie Marka, których nie da się ominąć.
+Mark znalazł sposób komunikacji z NASA i dowiedział się, że musi przetrwać prawie dwa lata na powierzchni Marsa do momentu przybycia misji ratowniczej.
 
 Moim zdaniem, książka jest ciekawa dlatego, że cały czas trzyma czytelnika w napięciu.
-Jeśli lubicie czytać fabułę, która opisuję przetrwanie i walkę o życiu, i opisuję mnóstwo naukowych procesów, więc warto jej poświęcić czas.
+Polecam tę książkę miłośnikom gatunku fantastyki naukowej z dużą liczbą scen walki o życie i przetrwanie opartych na wiedzy i badaniach naukowych prowadzonych przez głównego bohatera.
+Lektura tej książki pozwoli ciekawie spędzić czas wieczorem lub w ciągu podróży do pracy, lub podczas jakiejś innej wyprawy.
