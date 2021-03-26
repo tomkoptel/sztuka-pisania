@@ -11,7 +11,8 @@ To chyba dlatego, że zawsze są w pracy.
 Utrzymanie i wychowanie czworga dzieci jest czasochłonne i potrzebuje dużo wydatków, więc cały czas spędzam w kompanii braci.
 
 Maksim jest wysoki i silny.
-On ma szerokie barki i atletyczne plecy. Jeśli nie ma go w domu to znaczy, że ćwiczy w sali gimnastycznej.
+On ma szerokie barki i atletyczne plecy.
+Jeśli nie ma go w domu to znaczy, że ćwiczy w sali gimnastycznej.
 Maksim jest bokserem.
 
 Maksim nie znosi ani brudu, ani bałaganu w pokoju, dlatego często sprząta.
